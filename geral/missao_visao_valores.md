@@ -1,23 +1,26 @@
-# Missão, visão, valores
+# Missão, Visão e Valores
 
-Missão
+## Missão
+Formar o educando livre e responsável, consciente de seus direitos e deveres, limites e possibilidades. Promover a convivência harmoniosa, preparando crianças e jovens para construir um mundo mais humano, onde prevaleçam a justiça, a solidariedade e a paz.
 
-Formar o educando livre e responsável, consciente de seus direitos e deveres, limites e possibilidades, capaz de conviver com seus semelhantes, construindo um mundo mais humano onde reine justiça, solidariedade e paz.
+---
 
-Visão
+## Visão
+Ser um Colégio comprometido com uma **educação evangélico-libertadora**, iluminando e inspirando todos aqueles que acreditam na possibilidade de um mundo mais justo e pacífico.
 
-Ser um Colégio comprometido com a Educação evangélico-libertadora que servirá de luz para todos que mantêm a esperança de paz e justiça.
+---
 
-Valores
+## Valores
+O respeito ao coletivo está em primeiro lugar. Os valores que orientam todas as decisões e práticas da instituição são aqueles que fortalecem a convivência humana produtiva, ética e pacífica.
 
-O respeito ao coletivo está em primeiro lugar. Os principais valores que norteiam todos os nossos processos de decisão são aqueles que fortalecem a convivência humana de forma produtiva e pacífica. Desta forma, as decisões na instituição sempre deverão considerar:
-Solidariedade
-Honestidade
-Capacidade de conviver
-Caridade
-Autoestima
-Fidelidade
-Coragem
-Criatividade
-Liberdade
-Responsabilidade
+**Nossos valores fundamentais:**
+- Solidariedade  
+- Honestidade  
+- Capacidade de conviver  
+- Caridade  
+- Autoestima  
+- Fidelidade  
+- Coragem  
+- Criatividade  
+- Liberdade  
+- Responsabilidade  

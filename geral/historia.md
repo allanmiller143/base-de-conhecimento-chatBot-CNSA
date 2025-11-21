@@ -1,9 +1,30 @@
-# Historia
+# História
 
-O Colégio Nossa Senhora do Amparo, nasceu da visão educacional do Padre João Francisco de Siqueira Andrade. Irmã Francisca Pia concretizou os ideais educacionais de uma escola católica, cuja filosofia e valores estão enraizados nos princípios da Educação Siqueirana, legado do Fundador à Congregação das Irmãs Franciscanas de Nossa Senhora do Amparo. Esse sonho se tornou realidade com a inauguração da Escola Doméstica Nossa Senhora do Amparo, em Petrópolis/RJ, no dia 22 de janeiro de 1871. O Colégio Nossa Senhora do Amparo ao longo dessa caminhada foi sempre dirigido pelas Irmãs Franciscanas de Nossa Senhora do Amparo.
+O Colégio Nossa Senhora do Amparo nasceu da visão educacional do Padre João Francisco de Siqueira Andrade. A Irmã Francisca Pia foi responsável por concretizar os ideais de uma escola católica fundamentada na **Educação Siqueirana**, filosofia criada pelo Fundador e cultivada pela Congregação das Irmãs Franciscanas de Nossa Senhora do Amparo.
 
-Nascida do sonho de Deus, no coração do Padre Siqueira, a obra missão do Amparo chega ao coração do Nordeste. No dia 14 de julho 1929, no agreste de Pernambuco, mais precisamente na cidade nascente, Surubim, surge seu primeiro Colégio: Colégio Nossa Senhora do Amparo.
+Esse sonho tomou forma com a inauguração da **Escola Doméstica Nossa Senhora do Amparo**, em Petrópolis/RJ, em **22 de janeiro de 1871**. Desde então, o colégio tem sido conduzido pelas Irmãs Franciscanas, preservando o carisma e os valores de sua missão educativa.
 
-Muitas são as famílias que sonharam com uma educação para suas filhas e assim, junto com a cidade recém emancipada, o Colégio Nossa Senhora do Amparo inicia sua missão de Educação, dando continuidade ao ideal do Padre Siqueira de educar as crianças e jovens. “O amor multiplica as energias e o ideal inflama as Irmãs, que se desinstalaram da Casa Mãe, em Petrópolis/RJ para se doarem no agreste pernambucano.” A primeira Diretora do Colégio foi Irmã Ana de Nossa Senhora do Carmo, juntamente com Irmã Cecília das Chagas, Irmã Serafina de Santa Teresa e Irmã Maria Alice dos Anjos. Foram elas que iniciaram essa grande missão educacional que marca a história de Surubim. Educar crianças e jovens “conduzindo-os pelo caminho do amor”. As Irmãs foram fieis a esta Filosofia: iluminar os caminhos, abrir mentes e corações, para construir um mundo mais justo, solidário e pacifico, cultivando os valores do Evangelho.
+---
 
-São 95 anos de história, formando gerações com sucesso, marcando a história da cidade de Surubim. Nossa Senhora do Amparo nos guie sempre ao seu Filho Jesus, e que continuemos fortalecendo-nos diante dos desafios dos tempos atuais, dando-nos coragem, ousadia, sabedoria, perseverança e fé, para que possamos atingir os objetivos educacionais e humanizadores deste Colégio.
+## A Chegada ao Nordeste
+
+A obra idealizada pelo Padre Siqueira expandiu-se para o Nordeste, chegando ao agreste pernambucano. Em **14 de julho de 1929**, na então jovem cidade de Surubim, foi fundado o primeiro colégio da Congregação na região: o **Colégio Nossa Senhora do Amparo**.
+
+Muitas famílias sonhavam com uma educação sólida para suas filhas, e assim, junto ao processo de crescimento da cidade recém-emancipada, o colégio iniciou sua missão, mantendo vivo o ideal do Padre Siqueira:  
+**educar crianças e jovens conduzindo-os pelo caminho do amor.**
+
+As primeiras responsáveis por essa missão foram:  
+- Irmã Ana de Nossa Senhora do Carmo (Diretora),  
+- Irmã Cecília das Chagas,  
+- Irmã Serafina de Santa Teresa,  
+- Irmã Maria Alice dos Anjos.  
+
+Foram elas as pioneiras que iluminaram mentes e corações, dedicando-se a construir uma educação pautada na fé, nos valores do Evangelho e no compromisso com um mundo mais justo, solidário e pacífico.
+
+---
+
+## Uma História de 95 Anos em Surubim
+
+O Colégio Nossa Senhora do Amparo completa **95 anos de presença** em Surubim, formando gerações e marcando profundamente a história da cidade.
+
+Que Nossa Senhora do Amparo continue conduzindo toda a comunidade escolar, fortalecendo-nos na fé e nos guiando diante dos desafios do presente com **coragem, sabedoria, perseverança e amor**, para que possamos seguir promovendo uma educação humana e transformadora.
